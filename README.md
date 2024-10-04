@@ -1,2 +1,2 @@
-# BattleRoyalePlusPlus
+------>https://jhbbjhafhash.github.io/BattleRoyalePlusPlus/<------
  
